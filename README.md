@@ -1,4 +1,4 @@
 # Fimber Uchenna Eze 
 
-#### 47 Dane Hill, Margate, Kent
+#### Kent, England
 #### uchenna631@gmail.com
